@@ -21,8 +21,8 @@ I built Chai Books and The Moon, a literary community of 8,000+ followers, entir
 
 ## Where to Read
 
-- [LinkedIn Newsletter](https://linkedin.com/in/YOUR-LINK-HERE)
-- [Substack](https://YOUR-SUBSTACK-LINK-HERE)
+- [LinkedIn Newsletter](https://www.linkedin.com/newsletters/chai-books-and-marketing-7416634735440994305/)
+- [Substack](https://substack.com/@lettersfromthemoondesk)
 
 ## About Me
 
